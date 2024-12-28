@@ -1,12 +1,31 @@
 - 👋 Hi, I’m @mhmmdsyamsir09
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+❗JANGAN LUPA WALLET ADDRESS NYA DI GANTI YAH❗
+____________________________________________________________
+yes | pkg update -y
+yes | pkg upgrade -y
+yes | pkg install libjansson wget nano -y
+_____________________________________________________________
 
-<!---
-mhmmdsyamsir09/mhmmdsyamsir09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+mkdir ccminer && cd ccminer
+wget https://raw.githubusercontent.com/Darktron/pre-compiled/generic/ccminer
+wget https://raw.githubusercontent.com/Darktron/pre-compiled/generic/config.json
+wget https://raw.githubusercontent.com/Darktron/pre-compiled/generic/start.sh
+chmod +x ccminer start.sh
+_____________________________________________________________
+
+nano config.json
+
+
+_____________________________________________________________
+~/ccminer/start.sh
+
+
+_____________________________________________________________
+
+"stratum+tcp://na.luckpool.net:3960",
+
+
+_____________________________________________________________
+
+
+RGXk6S3P8t7gScwQPkoAYhf5BfZKvzPmwq
