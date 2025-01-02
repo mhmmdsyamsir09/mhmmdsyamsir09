@@ -79,6 +79,17 @@ https://app-earnings-link.com/robotEvolution/vijmiaczlwhecol0yapp
 
 
 
+LEGENDARY HERO:
+https://app-earnings-link.com/givvyAfkMoneyTree/25ji0v2lun5noq6dd
+
+
+
+
+
+
+
+
+
 SOSIAL MEDIA✓
 
 INSTAGRAM:
