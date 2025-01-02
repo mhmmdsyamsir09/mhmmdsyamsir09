@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mhmmdsyamsir09
+.- 👋 Hi, I’m @mhmmdsyamsir09
 ❗JANGAN LUPA WALLET ADDRESS NYA DI GANTI YAH❗
 ____________________________________________________________
 yes | pkg update -y
