@@ -53,6 +53,30 @@ https://www.himoney.games/pages/home/home?invite_code=00IZWZ
 https://www.himoney.games/pages/home/home?invite_code=00IZWZ
 
 
+BUSGOGO:
+https://g.moonlabsapp.com/share/busgogogo/invite.id.html?nickname=4A%20TOP%20ID&code=adeq5
+
+
+LOSTKINDOM:
+https://app-earnings-link.com/lostKingdom/hhkq1iszj8f9yp
+
+
+
+GIV VIDEO:
+https://app-earnings-link.com/givvyVideo/sebv6bx5hbmpc80cy
+
+
+
+FANTASTIC PET:
+https://app-earnings-link.com/yourFantasticPet/omgplmrfac7kde8xctise
+
+
+
+ROBO RALLY:
+https://app-earnings-link.com/robotEvolution/vijmiaczlwhecol0yapp
+
+
+
 
 
 SOSIAL MEDIA✓
