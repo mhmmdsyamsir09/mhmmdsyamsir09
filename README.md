@@ -85,6 +85,10 @@ https://app-earnings-link.com/givvyAfkMoneyTree/25ji0v2lun5noq6dd
 
 
 
+pocket prizes browser:
+https://softideaa.s3.ap-southeast-1.amazonaws.com/PocketPrizesBrowser/Invitation.html?referrer=E6U1S5EX
+
+
 
 
 
