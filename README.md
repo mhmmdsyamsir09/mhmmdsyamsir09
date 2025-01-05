@@ -93,6 +93,16 @@ https://softideaa.s3.ap-southeast-1.amazonaws.com/PocketPrizesBrowser/Invitation
 
 
 
+X WORLD:
+
+Bagikan bonus 10000k setiap hari, tautan https://xworld-app.com/id-ID/share/land?userId=803944865
+
+
+
+
+
+
+
 
 SOSIAL MEDIA✓
 
