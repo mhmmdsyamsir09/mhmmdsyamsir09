@@ -99,7 +99,9 @@ Bagikan bonus 10000k setiap hari, tautan https://xworld-app.com/id-ID/share/land
 
 
 
+GEMGALA:
 
+https://referu.pro/download?c=one&uid=20848291&m=8.0
 
 
 
