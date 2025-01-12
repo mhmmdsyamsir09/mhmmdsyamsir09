@@ -98,6 +98,10 @@ X WORLD MYSTIC FOX:
 https://xworlds.store/25ehv
 
 
+X WORLD UNDANGAN:
+Gunakan kode undangan saya 4ATOPID97, Bagikan bonus 10000k setiap hari, tautan https://xworld-app.com/id-ID/share/land?userId=803944865
+
+KODE UNDANGAN: 4ATOPID97
 
 
 X WORLD:
