@@ -90,6 +90,13 @@ https://softideaa.s3.ap-southeast-1.amazonaws.com/PocketPrizesBrowser/Invitation
 
 
 
+X WORLD B.DUCK:
+https://xworlds.store/25ehu
+
+
+X WORLD MYSTIC FOX:
+https://xworlds.store/25ehv
+
 
 
 
