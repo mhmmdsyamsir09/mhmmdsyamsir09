@@ -120,8 +120,7 @@ https://www.instagram.com/4a_top_id/profilecard/?igsh=MWVndHpubW5tbjl3bw==
 
 
 WHATSAPP FOR 4A STORE✓
-082130566667
-
+https://wa.me/6282130566667
 
 
 YOUTUBE:
