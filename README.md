@@ -118,6 +118,22 @@ TAP COIN:
 Aku sudah dapat uang hanya dengan main aplikasi Tap Coin selama 3 menit saja! Tap Coin sedang bagi-bagi Rp 15.000 untuk pengguna baru secara gratis. Ayo download sekarang melalui link di bawah dan langsung tarik Rp 15.000 ke DANA kamu!  https://invite.tap4coin.com/invite_id.html?u=22125928293&app_ver=2.7.3
 
 
+
+
+
+
+
+
+SUPER BIRDS:
+
+https://fx2485332.playgamese.com/share/invite?st=app_share&language=3&r_id=2485332
+
+
+
+
+
+
+
 SOSIAL MEDIA✓
 
 INSTAGRAM:
