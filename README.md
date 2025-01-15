@@ -134,6 +134,21 @@ https://fx2485332.playgamese.com/share/invite?st=app_share&language=3&r_id=24853
 
 
 
+FIZZO NOVEL:
+https://api.tmtreader.com/s/Zs8Dx3cxT/?share_token=74c65161-e419-46a7-ad03-7713f8ee4d66
+
+
+
+
+
+
+
+
+
+
+
+
+
 SOSIAL MEDIA✓
 
 INSTAGRAM:
