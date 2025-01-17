@@ -142,7 +142,8 @@ A15144604
 
 
 
-
+UNDANGAN GOPAY:
+Eh, cobain download GoPay, deh. Transfer sama bayar-bayar bisa ke mana aja, aplikasinya ringan lagi. Download sini ya https://app.gopay.co.id/NF8p/vt3cz31i
 
 
 
