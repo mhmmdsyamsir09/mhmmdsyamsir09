@@ -151,7 +151,8 @@ https://www.glsk.xyz/5WEbiSOspr
 KODE: SZEDC6
 
 
-
+UNDANGAN REF MINING:
+https://xcloudmining.com/account/sign-up?ref=100301085
 
 SOSIAL MEDIA✓
 
