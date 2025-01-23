@@ -171,7 +171,7 @@ KODE UNDANGAN:86862110
 SOSIAL MEDIA✓
 
 INSTAGRAM:
-https://www.instagram.com/mhmdsyamsir97/profilecard/?igsh=dHR6bGJiZGZwYmc1
+https://www.instagram.com/mhmdsyamsir97?igsh=dHR6bGJiZGZwYmc1
 
 
 
